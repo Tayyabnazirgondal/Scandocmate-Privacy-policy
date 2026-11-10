@@ -1,0 +1,1 @@
+# Scandocmate-Privacy-policy
